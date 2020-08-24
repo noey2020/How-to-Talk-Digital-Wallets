@@ -10,6 +10,8 @@ We use to use pebbles and shells to barter. We discovered minerals, gold, and pr
 
 An example of digital wallet is Roks. Roks's main significant advantage is its hedge against hyperinflation among the many benefits of using another payment method.
 
+https://rockstable.io/
+
 Good morning and thanks for reading! Hope this helps! 😊
 
 I included some posts for reference.
